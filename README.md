@@ -7,3 +7,4 @@ Cookies Udemy update day by day.
 Oklahomadov.udemy.com
 
 https://h109c-my.sharepoint.com/:f:/g/personal/hh110960_h109c_onmicrosoft_com/Er7BVdT1_jtDvNmuGBh1xf8B8EHzPl2gbiCy1mEHTZfZ5Q?e=dsKrIP
+https://positivethinking.udemy.com/organization/home/
